@@ -1,1 +1,1 @@
-## Olá! Sou estudante na Etec Joaquim Ferreira do Amaral.
+## Olá! Sou estudante na Fatec Jahu.
